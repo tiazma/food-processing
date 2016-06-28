@@ -1,5 +1,5 @@
 ===========
-Pate brisée
+Pâte brisée
 ===========
 
 Ingrédients
@@ -16,7 +16,7 @@ Mode opératoire
 Étape 1
 #######
 
-Tout mettre dans un tuperware dans l'ordre indqiqué ci-dessus.
+Tout mettre dans une boîte à couvercle rainuré dans l'ordre indiqué ci-dessus.
 
 Étape 2
 #######
